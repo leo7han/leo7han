@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on creating Applications and Projects
 - 📫 How to reach me: email me at leohanzo30@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I play rpg games 
 
 <!---
 leo7han/leo7han is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
